@@ -1,1 +1,1 @@
-a course of K-digital training affiliate with DAVIAN 
+a course of K-digital training affiliated with DAVIAN 
